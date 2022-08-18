@@ -1,4 +1,4 @@
-# kaneki-icraat-paneli
+# kaneki-icraat-paneli (saka amaclidir)pls kiz mayın
 
 <h1 align="center">KANEKI BABA1337 PRO CRACKER HACKER</h1>
 <h3 align="center">discord.gg/4455</h3>
